@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GAFK970803MCHLBR05
+GAFK970803MCHLBR05
